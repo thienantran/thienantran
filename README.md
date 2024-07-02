@@ -11,6 +11,9 @@ Currently i'm at Northrop Grumman as a Systems Engineer Intern.
 
 🥔Goal: To become a potato farmer.
 
+Here is my blog.
+https://teddytran.bearblog.dev/
+
 
 <!--
 **thienantran/thienantran** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
