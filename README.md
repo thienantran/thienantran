@@ -1,4 +1,4 @@
-## Hi I am Teddy 🐻
+## Me Teddy 🐻
 
 🖥️ I used to play a lot of video games like Counter Strike and Valorant. I got to play internationally and infront of some big audiences. Playing video games really shaped my mind and gave me some extremely important life skills. These games instilled into me the ideas that success comes one round at a time, and that with time, focus, and intentional actions you will reach your goal.
 
