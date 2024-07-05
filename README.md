@@ -4,7 +4,8 @@
 
 📝"Ten thousand hours is the magic number of greatness" 
 My interpretation of this is that any skill or topic can be learned, it just takes time.
-Find a way to enjoy what you do. 
+Find a way to enjoy what you do.
+It's important to do things and try things. 
 
 🤖I hacked and jailbroke some AI models. I've been mainly focusing on learning the contents for Cyber/Information Security engineering recently.
 Currently i'm at Northrop Grumman as a Systems Engineer Intern. 
