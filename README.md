@@ -7,10 +7,12 @@ My interpretation of this is that any skill or topic can be learned, it just tak
 Find a way to enjoy what you do.
 It's important to do things and try things. 
 
-🤖I hacked and jailbroke some AI models. I've been mainly focusing on learning the contents for Cyber/Information Security engineering recently.
-Currently i'm at Northrop Grumman as a Systems Engineer Intern. 
+🤖Got to work on alot of cool projects and meet some inspirational people.
+Currently i'm at Northrop Grumman.
 
-🥔Goal: To become a potato farmer.
+🥔Goal: To have a farm and enjoy my time with those around me. I am very thankful for those who have uplifted me my entire life. I hope that in the future I can give back to them. 
+
+I also play Yugioh now.
 
 Here is my blog.
 https://teddytran.bearblog.dev/
